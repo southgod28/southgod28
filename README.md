@@ -5,3 +5,4 @@
 - Interested in cloud computing and building things that scale
 
 Reach me: www.linkedin.com/in/abdulhameed-a-10ab3224b
+Verify my certificates: https://www.credly.com/users/abdulhameed-aiyelabegan
